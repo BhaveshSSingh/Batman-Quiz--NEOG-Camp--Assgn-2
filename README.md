@@ -4,4 +4,4 @@
 
 Do claim to be a very big Batman fan? Well let's put that to test
 
-Take the test (link in the about section) and will know for sure if you actually are what you claim ;)
+Take the test (link in the about section) and we'll know for sure if you actually are what you claim ;)
